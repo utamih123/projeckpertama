@@ -1,0 +1,2 @@
+# projeckpertama
+iniprojeckpertamasaya
